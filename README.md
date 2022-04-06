@@ -1,2 +1,2 @@
 # BGMI-Free-skins
-Get all skins for free
+Get all mythic skins for free
